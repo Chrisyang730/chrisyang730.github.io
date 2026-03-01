@@ -1,2 +1,2 @@
 # chrisyang730.github.io
-Poomsae calls
+Poomsae calls for retarded judges
